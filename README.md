@@ -6,7 +6,7 @@ A portfolio website template for graduates
 
 ## Author
 
-[@koladechris](https://www.twitter.com/koladechris)
+[@GREYHAT](https://twitter.com/ifelsethen_xo?t=GMXMZQvdIYar9kPmPJiF-Q&s=09a)
 
 ## Get source code at a student friendly cost. My whatsapp
 
